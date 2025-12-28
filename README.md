@@ -1,0 +1,1 @@
+# STRATEGY-KB-1.0
